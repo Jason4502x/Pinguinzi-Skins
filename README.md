@@ -1,30 +1,31 @@
 # Pinguinzi-osu!-Skins
 # [-Pinguinzi-DT](https://drive.google.com/file/d/1TzVw9KoqN50Wa2OWtclh3k-z8QiIMCeP/view)
-
+![](https://i.imgur.com/St3e2qR.jpeg)
 # [Pinguinzi-DT Rafis](https://drive.google.com/file/d/192JS1w34sTkIlwh4SwymFo3J5p7Ic5eX/view)
-
+![](https://i.imgur.com/VyGypNA.jpeg)
 # [-#Pinguinzi-Skin](https://drive.google.com/file/d/1raj5LYejamDqXXTVtMosyuDajBnNywoJ/view)
-
+![](https://i.imgur.com/cV2rqMB.jpeg)
 # [Bubbleskin-Pinguinzi](https://drive.google.com/file/d/10YOx45xB4WdzyDkX63TD86_4A-1AekSc/view)
-
+![](https://i.imgur.com/1oUsr8d.jpeg)
 # [Bubbleskin-Beast](https://drive.google.com/file/d/1l3_llD5QWI_hv-aCErRHTP2gJ9i_wYHD/view)
-
+![](https://i.imgur.com/JlAmXYL.jpeg)
 # [-Zane-Pinguinzi Edit](https://drive.google.com/file/d/1AcIVC9y2tct_nAlFKubGTfQefhQXj0WD/view)
-
+![](https://i.imgur.com/GhHsY8j.jpeg)
 # [-PinguinzistolefromRyan](https://drive.google.com/file/d/1CkKBk4ea1GvstOPCDDPhkJK2iB0filXR/view)
-
+![](https://i.imgur.com/IkbWz7h.jpeg)
 # [-RyanstolefromKevin Edit](https://drive.google.com/file/d/1WRjwgLDz_RiR3qf6iO1d3ebFPaQF7ra5/view)
-
+![](https://i.imgur.com/cWBBE8Q.jpeg)
 # [-boob- Edit](https://drive.google.com/file/d/11ozhQ6QKJpd8In_ANwByHAjtzNpvEs1c/view)
-
+![](https://i.imgur.com/mkeKpb5.jpeg)
 # [-ddddd- Edit](https://drive.google.com/file/d/1YsZ8JX6G73OC8VXiCAK4vj8eWSb78fUY/view)
-
+![](https://i.imgur.com/twkk5RO.jpeg)
 # [《CK》 Bacon boi 1.0 『blue』Edit](https://drive.google.com/file/d/18VhLteEhqeAsTqpT-nVTuEtiGsCvBDAk/view)
-
+![](https://i.imgur.com/dvKNH2X.jpeg)
 # [Arnold24x24 Edit](https://drive.google.com/file/d/1bMuET6WUz-wTpeXbHd1yGcb71D4Wnpba/view)
-
-# [Pinguinzi---](https://drive.google.com/file/d/1B0G-_UCF9nu1r6yt0sfecCyA_XhTcBu8/view)
-
+![](https://i.imgur.com/OAzj396.jpeg)
 # [Pinguinzi--- Dare](https://drive.google.com/file/d/14j9QK1k6h0O63Ju7wYFGclcY3CEfwhBk/view)
-
+![](https://i.imgur.com/rqrdUig.jpeg)
+# [Pinguinzi---](https://drive.google.com/file/d/1B0G-_UCF9nu1r6yt0sfecCyA_XhTcBu8/view)
+![](https://i.imgur.com/xQAswCc.jpeg)
 # [Pinguinzi---[Unfinished]](https://drive.google.com/file/d/1T8OGv1obfO81ACLuqIQEI7Je7YykMjqC/view)
+![](https://i.imgur.com/tfHduEb.jpeg)

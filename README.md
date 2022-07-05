@@ -1,1 +1,1 @@
-# Pinguinzi-Skins
+# Pinguinzi-osu!-Skins

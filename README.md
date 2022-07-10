@@ -29,3 +29,5 @@
 ![](https://i.imgur.com/mkeKpb5.jpeg)
 # [-ddddd- Edit](https://drive.google.com/file/d/1YsZ8JX6G73OC8VXiCAK4vj8eWSb78fUY/view)
 ![](https://i.imgur.com/twkk5RO.jpeg)
+# [-dddddv2 Pinguinzi](https://drive.google.com/file/d/1X8IgaDEU0jILWZMT62Ur4NMwPjMjaO1k/view)
+![](https://i.imgur.com/UJ3fDXS.jpeg)

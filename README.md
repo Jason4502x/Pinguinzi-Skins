@@ -27,6 +27,8 @@
 ![](https://i.imgur.com/IkbWz7h.jpeg)
 # [-RyanstolefromKevin Edit](https://drive.google.com/file/d/1WRjwgLDz_RiR3qf6iO1d3ebFPaQF7ra5/view)
 ![](https://i.imgur.com/cWBBE8Q.jpeg)
+# [- 《ArZn》 MonkoBacon 『Edit](https://drive.google.com/file/d/1pOKwVmQBBVkHDUYxGLKGsMzpAfhazkU6/view)
+![](https://i.imgur.com/7Vwh3ai.jpeg)
 # [《CK》 Bacon boi 1.0 『blue』Edit](https://drive.google.com/file/d/18VhLteEhqeAsTqpT-nVTuEtiGsCvBDAk/view)
 ![](https://i.imgur.com/dvKNH2X.jpeg)
 # [-boob- Edit](https://drive.google.com/file/d/11ozhQ6QKJpd8In_ANwByHAjtzNpvEs1c/view)

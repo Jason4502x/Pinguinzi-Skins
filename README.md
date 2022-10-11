@@ -15,6 +15,8 @@
 ![](https://i.imgur.com/tfHduEb.jpeg)
 # [-#Pinguinzi-Skin](https://drive.google.com/file/d/1raj5LYejamDqXXTVtMosyuDajBnNywoJ/view)
 ![](https://i.imgur.com/cV2rqMB.jpeg)
+# [- Pinguinzi Beastmode](https://drive.google.com/file/d/1sQFgXAHN7fBA-v2F51RMH3_E57vqjswx/view)
+![](https://i.imgur.com/jalONbc.jpeg)
 # [-fierymod Edit](https://drive.google.com/file/d/1dv8_RECUNOkq-bCDhMKFcNUjW6sFpEU4/view)
 ![](https://i.imgur.com/ZRjjeqG.jpeg)
 # [Boom---](https://drive.google.com/file/d/1b851NvoF1d26-SnJ4Tx4-1Cyqbxy42Ge/view)

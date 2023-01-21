@@ -27,6 +27,8 @@
 ![](https://i.imgur.com/88YaX2l.jpeg)
 # [-Zane-Pinguinzi Edit](https://drive.google.com/file/d/1AcIVC9y2tct_nAlFKubGTfQefhQXj0WD/view)
 ![](https://i.imgur.com/GhHsY8j.jpeg)
+# [BOCCHI THE ROCK! edit](https://drive.google.com/file/d/1jiq14LKnvudw764ID-Zo5DnyW_WCOIGa/view)
+![](https://i.imgur.com/cOV3ZlF.jpeg)
 # [Arnold24x24 Edit](https://drive.google.com/file/d/1bMuET6WUz-wTpeXbHd1yGcb71D4Wnpba/view)
 ![](https://i.imgur.com/OAzj396.jpeg)
 # [-PinguinzistolefromRyan](https://drive.google.com/file/d/1CkKBk4ea1GvstOPCDDPhkJK2iB0filXR/view)

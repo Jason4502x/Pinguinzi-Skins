@@ -21,6 +21,8 @@
 ![](https://i.imgur.com/ZRjjeqG.jpeg)
 # [-Pinguinzi Crazyness](https://drive.google.com/file/d/1ooIJIE2Jo4pFiAY-yTjVRW0pyCUngxm4/view)
 ![](https://i.imgur.com/ozGzEL2.jpeg)
+# [Angelsim-Pinguinzi Edit](https://drive.google.com/file/d/1UEL2cJgFjUR41_DIsx1cd7YGuA0_a7HV/view)
+![](https://i.imgur.com/k419QTR.jpeg)
 # [Boom---](https://drive.google.com/file/d/1b851NvoF1d26-SnJ4Tx4-1Cyqbxy42Ge/view)
 ![](https://i.imgur.com/CnZxaey.jpeg)
 # [dracula-Pinguinzi](https://drive.google.com/file/d/1oaFmhXMjkhqAkfOkav9b0u9vNBDTeWWq/view)

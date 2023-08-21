@@ -1,4 +1,6 @@
 # Pinguinzi-osu!-Skins
+# [PINGUINZI GODMODE](https://drive.google.com/file/d/1nGJ_V-k88krQPTXlI0cf3FGg5i06b3zg/view)
+![](https://i.imgur.com/xRaZOhW.jpeg)
 # [-Pinguinzi-DT](https://drive.google.com/file/d/1TzVw9KoqN50Wa2OWtclh3k-z8QiIMCeP/view)
 ![](https://i.imgur.com/St3e2qR.jpeg)
 # [Pinguinzi-DT Rafis](https://drive.google.com/file/d/192JS1w34sTkIlwh4SwymFo3J5p7Ic5eX/view)
